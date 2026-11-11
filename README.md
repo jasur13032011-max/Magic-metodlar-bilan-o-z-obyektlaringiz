@@ -1,0 +1,1 @@
+# Magic-metodlar-bilan-o-z-obyektlaringiz
